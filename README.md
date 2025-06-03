@@ -32,5 +32,5 @@ Outside of data and medicine, I'm a passionate guitarist and enjoy composing mus
 ---
 
 ## 📫 Let's Connect!
-- [LinkedIn](https://www.linkedin.com/in/nima-karimi-a84790357/))
+- [LinkedIn](https://www.linkedin.com/in/nima-karimi-a84790357/)
 - 📧 nima.karimi.20@gmail.com
